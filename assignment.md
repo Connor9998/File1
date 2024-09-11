@@ -18,9 +18,9 @@ If I'm in the club, I got that fire when I'm performing
 
 The backend just came in, in all hundreds
 
-Vibes galore, cute shit, they all on us
+Vibes galore, cute ****, they all on us
 
-I'm from Atlanta, where young ****** run shit
+I'm from Atlanta, where young ****** run ****
 
 I know they hating on me, but I don't read comments
 
